@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name] 👋
+# Hi there, I'm Alyssa~ 
 
 **Aspiring Data & Business Analyst | AI Automation Enthusiast | E-commerce Background**
 
