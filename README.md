@@ -1,6 +1,6 @@
 # Hi there, I'm Alyssa~ 
 
-**Aspiring Data & Business Analyst | AI Automation Enthusiast | E-commerce Background**
+**Data & Business Analyst | AI Automation Enthusiast | E-commerce Background**
 
 I blend a strong foundation in Information Systems and e-Business Management (BBA) with real-world entrepreneurial experience. Having co-founded an e-commerce startup and operated an online floral business, I deeply understand operational pain points, cost structures, and the value of actionable insights. 
 
